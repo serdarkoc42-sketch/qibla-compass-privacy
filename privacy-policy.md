@@ -51,7 +51,7 @@ We may update this privacy policy from time to time. Changes will be posted on t
 
 ## Contact
 If you have any questions about this privacy policy, please contact us at:  
-📧 **[your-email@gmail.com]**
+📧 **[promptcrafter.app@gmail.com]**
 
 ---
 
